@@ -1,3 +1,4 @@
+(- I always stand against injustice -)
 -  Hi, I’m DANI_SPY
 -  I’m interested in sabotage
 -  How to reach me ( "telegram username: @DANI_SPY" )
